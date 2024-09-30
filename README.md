@@ -1,2 +1,4 @@
-# unidos-da-brilhante
-apenas a tropa da brilhante
+Salve aqui em fala e Gabriel Floriano
+estou estudando no 
+estou estudando no alura
+e estou aprendendo usar isso aqui.
